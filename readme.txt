@@ -1,3 +1,2 @@
 Creating a new branch is quick AND simple.
-i have dream!!!
-i love you yannie.
+i have a dream!!!
